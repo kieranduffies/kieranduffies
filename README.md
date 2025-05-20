@@ -35,4 +35,14 @@
 
 　　　　　 　　 　*on very rare occasion, i play honkai impact + star rail, genshin, wuthering waves & punishing gray raven.*
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　![image](https://github.com/user-attachments/assets/3ae28884-c18c-499b-a00c-f84fa8c1208c)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://github.com/user-attachments/assets/3ae28884-c18c-499b-a00c-f84fa8c1208c)
+
+　　　　　　　　　꩜ 　i am a very bittersweet and lonely soul hidden behind my wisdoms, i relate heavily to deer & octupi.
+            
+　　　　　　　　　i have the tendancy to disappear off of the face of the earth as others say, if i do, please dont worry (^:
+
+　　　　　　　　　　　i suffer paranoid schizophrenia, autism and dyslexia. patience is sometimes needed with me. 
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![I LOVE DUTCH VAN DER LINDE!!!](https://github.com/user-attachments/assets/e3f2ddb4-2f63-4cad-b103-9b16cfd32a09)
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　 thank you for reading 🦌
