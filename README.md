@@ -43,6 +43,6 @@
 
 　　　　　　　　　　　i suffer paranoid schizophrenia, autism and dyslexia. patience is sometimes needed with me. 
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![I LOVE DUTCH VAN DER LINDE!!!](https://github.com/user-attachments/assets/e3f2ddb4-2f63-4cad-b103-9b16cfd32a09)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　![I LOVE DUTCH VAN DER LINDE!!!](https://github.com/user-attachments/assets/e3f2ddb4-2f63-4cad-b103-9b16cfd32a09)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　 thank you for reading 🦌
