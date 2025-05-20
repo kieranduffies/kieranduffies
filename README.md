@@ -10,12 +10,29 @@
 
 　
 
-　　　　　　　　　　　　　　　　　　︵︵︵　﹒  __a little about my interests and life!__ ﹒ ︵︵︵
+　　　　　　　　　　　　　　　　　　︵︵︵　﹒  __some things about my interests!__ ﹒ ︵︵︵
 
-　　　　　　　　　۶𝜚 i enjoy kdramas, specifically; __the trunk__, coffee prince, squid game, karma, all of us are dead, etc!
+　　　　　　　　　۶𝜚 i enjoy **kdramas**, specifically; __the trunk__, coffee prince, squid game, karma, all of us are dead, etc!
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 ![](https://s3.ezgif.com/tmp/ezgif-3cb3142da68117.webp)
 
-　　　　　　　 shows and movies that i also like are law and order: special victims unit, and other shows created by dick wolf. 
+　　　**shows** that i also like are law and order: special victims unit, and other shows created by dick wolf. SPONGEBOB SQUAREPANTS!!!!! 
 
-　　　　　　　　　　　　　　my favourite movies are everything everywhere at once and soulmate (2023) !!! 
+　　　　　　　　　　　　　　　　　　　　　　yellowstone, 1923 & more typically old shows
+
+　　　　　　　　　　　　　　my favourite **movies** are everything everywhere at once and soulmate (2023) !!! 
+
+　　　　　　　　　　　　　　　　　　　　i like some **animes** such as K-on & azumanga daioh ![](https://files.catbox.moe/hg9fo0.png)
+
+　　　　　　　　　　　　　　　　i ADORE gong yoo. thats my WIFE! (i say while bound in a straight jacket)
+
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://github.com/user-attachments/assets/19aca10e-71c5-4b46-83d1-b0d37550114d)
+
+　　　　　　　　　　　　　　　　　　　**games** that i luv are very few, but mean a lot to me!! 
+
+　　　　　　　　my favs include **red dead redemption**, the last of us, minecraft, cookie run kingdom & animal crossing.
+
+　　　　　 　　 　*on very rare occasion, i play honkai impact + star rail, genshin, wuthering waves & punishing gray raven.*
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　![image](https://github.com/user-attachments/assets/3ae28884-c18c-499b-a00c-f84fa8c1208c)
