@@ -6,6 +6,8 @@
 
 　　　　　　　　　　　　　　　𖦹　⏖   infp 𓇼◝　 certified nurse assistant & med student .. !  ![](https://files.catbox.moe/nlbjey.webp) ꒱ 　  ุ
 
+　　　　　　　　　　　　　　　　　　　　　　　happily promised to my dear ashlyn
+
 　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://github.com/user-attachments/assets/b07b3a1b-4cc9-4e27-83f2-bf3d624cdf47)
 
 　
