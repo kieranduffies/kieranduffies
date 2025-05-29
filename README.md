@@ -45,6 +45,8 @@
 
 　　　　　　　　　　　i suffer paranoid schizophrenia, autism and dyslexia. patience is sometimes needed with me. 
 
+　　　　　　　　　　　　　　　　　　if you're my friend, don't be afraid to ask for my phone number!!!
+
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　![I LOVE DUTCH VAN DER LINDE!!!](https://github.com/user-attachments/assets/e3f2ddb4-2f63-4cad-b103-9b16cfd32a09)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　 thank you for reading 🦌
