@@ -20,7 +20,7 @@
 
 　　　**shows** that i also like are law and order: special victims unit, and other shows created by dick wolf. SPONGEBOB SQUAREPANTS!!!!! 
 
-　　　　　　　　　　　　　　　　　　　　　　yellowstone, 1923 & more typically old shows
+　　　　　　　　　　　　　　　　　　　　　　yellowstone, 1923, 1883 & more typically old shows
 
 　　　　　　　　　　　　　　my favourite **movies** are everything everywhere at once and soulmate (2023) !!! 
 
@@ -44,6 +44,8 @@
 　　　　　　　　　i have the tendancy to disappear off of the face of the earth as others say, if i do, please dont worry (^:
 
 　　　　　　　　　　　i suffer paranoid schizophrenia, autism and dyslexia. patience is sometimes needed with me. 
+
+　　　　　　　　　　　　　　i tend to call friends and strangers alike "son" or "hun" if that is a bother please lmk
 
 　　　　　　　　　　　　　　　　　　if you're my friend, don't be afraid to ask for my phone number!!!
 
