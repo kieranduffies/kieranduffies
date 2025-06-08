@@ -43,7 +43,7 @@
             
 　　　　　　　　　i have the tendancy to disappear off of the face of the earth as others say, if i do, please dont worry (^:
 
-　　　　　　　　　　　i suffer paranoid schizophrenia, autism and dyslexia. patience is sometimes needed with me. 
+　　　　　　　　　　　i suffer paranoid schizophrenia, ptsd, autism and dyslexia. patience is sometimes needed with me. 
 
 　　　　　　　　　　　　　　i tend to call friends and strangers alike "son" or "hun" if that is a bother please lmk
 
