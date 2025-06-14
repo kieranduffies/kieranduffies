@@ -20,7 +20,9 @@
 
 　　　**shows** that i also like are law and order: special victims unit, and other shows created by dick wolf. SPONGEBOB SQUAREPANTS!!!!! 
 
-　　　　　　　　　　　　　　　　　　　　　　yellowstone, 1923, 1883 & more typically old shows
+　　　　　　　　　　　　　　　　　　　　yellowstone, 1923, 1883 & more typically old shows
+                      
+　　　　　　　　　　　　　　alongside sitcoms like modern family, **brooklyn 99**, the office and the good place
 
 　　　　　　　　　　　　　　my favourite **movies** are everything everywhere at once and soulmate (2023) !!! 
 
@@ -35,7 +37,6 @@
 
 　　　　　　　　my favs include **red dead redemption**, the last of us, minecraft, cookie run kingdom & animal crossing.
 
-　　　　　 　　 　*on very rare occasion, i play honkai impact + star rail, genshin, wuthering waves & punishing gray raven.*
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://github.com/user-attachments/assets/3ae28884-c18c-499b-a00c-f84fa8c1208c)
 
